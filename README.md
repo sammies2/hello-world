@@ -1,2 +1,3 @@
 # hello-world
 This is the beginning of my developing story! May it be long and full of growth. Wish me luck....
+Sam here again..a bit more about myself I am a mommy to 2 beautiful babies a boy and a girl. Sebastian is almost 2 and a half and baby Monse will turn 1 on October. So exciting to see the world through their eyes. With them my world is complete. They are my strength and daily motivation.
